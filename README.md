@@ -10,6 +10,8 @@
 - 📫 How to reach me **rohanshahid230@gmail.com**
 
 - ⚡ Fun fact **playing cricket , snooker**
+- 
+![gif](https://private-user-images.githubusercontent.com/74038190/240906093-9be4d344-6782-461a-b5a6-32a07bf7b34e.gif?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3MTAyNDYzODYsIm5iZiI6MTcxMDI0NjA4NiwicGF0aCI6Ii83NDAzODE5MC8yNDA5MDYwOTMtOWJlNGQzNDQtNjc4Mi00NjFhLWI1YTYtMzJhMDdiZjdiMzRlLmdpZj9YLUFtei1BbGdvcml0aG09QVdTNC1ITUFDLVNIQTI1NiZYLUFtei1DcmVkZW50aWFsPUFLSUFWQ09EWUxTQTUzUFFLNFpBJTJGMjAyNDAzMTIlMkZ1cy1lYXN0LTElMkZzMyUyRmF3czRfcmVxdWVzdCZYLUFtei1EYXRlPTIwMjQwMzEyVDEyMjEyNlomWC1BbXotRXhwaXJlcz0zMDAmWC1BbXotU2lnbmF0dXJlPTllOTI1NWJlZDAzY2YzMDJiZWYyNWRmYmRmNGNhNzZiMTViOTUyOGNjMGI5MTgxY2I3MDg4YWMzODViYmMzNTcmWC1BbXotU2lnbmVkSGVhZGVycz1ob3N0JmFjdG9yX2lkPTAma2V5X2lkPTAmcmVwb19pZD0wIn0.LHDGA-u9gcyZgK3AB7i4AEGy0L7_5EvAYOCt0IE-5Jc)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
